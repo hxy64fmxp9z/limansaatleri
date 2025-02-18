@@ -5,7 +5,7 @@
 ✨ Limanbet, yenilikçi yapısı ve eşsiz fırsatlarıyla seni bekliyor!
 
 <a href="https://cutt.ly/ze5DePku" title="Limanbet Güncel Giriş">  
-<img src="https://i.ibb.co/chWM7Hzq/btkm-jpg.png" alt="Limanbet Güncel Giriş" style="max-width: 60%; border: 3px solid #8b0000; border-radius: 15px; box-shadow: 0px 0px 15px rgba(139, 0, 0, 0.8);">  
+<img src="https://i.ibb.co/chWM7Hzq/btkm-jpg.png" width="300" height="250" alt="istanbul manzara">  
 </a>
 <h2>
 <p> <a href="https://cutt.ly/ze5DePku" style="color: #8b0000; font-weight: bold;">BETKOM'dan Yeni Kayıt Olan Herkese 5000 TL'ye Varan Deneme Bonusu!</a></p>
